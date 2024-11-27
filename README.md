@@ -9,5 +9,6 @@
 ![ariaofsorrow](https://github.com/user-attachments/assets/9303aadc-80c0-46ef-a35c-4b08473f78c7)
 ![castlevania4](https://github.com/user-attachments/assets/00eb8655-f0e5-4829-862f-c8c7dddfe6d3)
 ![sotn](https://github.com/user-attachments/assets/62540ddb-8dfb-4ecc-aa78-b13d6c781c0b)
+![cajatexto](https://github.com/user-attachments/assets/1d9d5915-5b0a-4b36-af19-bde430c5f2ea)
 
 
